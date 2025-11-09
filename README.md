@@ -1,1 +1,1 @@
-site de test, est inutile
+site skz, pour les non fans
